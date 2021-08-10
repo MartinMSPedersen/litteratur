@@ -2,6 +2,9 @@
 Mine anbefalinger
 
 * Johannes Hohlenberg
+* [Den afmægtige](https://www.librarything.com/work/6613050/book/59684286)
+* [Darwin for Beginners](https://www.librarything.com/work/94824/book/55786387)
+* [Strange Brains and Genius](https://www.librarything.com/work/21046/book/55771140)
 * [The Colossal Book of Mathematics : Classic Puzzles, Paradoxes & Problems](https://www.librarything.com/work/5317153/book/56334957)
 * [I Am a Strange Loop](https://www.librarything.com/work/3161919/book/56334777)
 * [The lost art of towel origami](https://www.librarything.com/work/4363039/book/56341950)
